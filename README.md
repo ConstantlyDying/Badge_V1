@@ -18,3 +18,4 @@ After attending a hackathon (Fallout), I saw @KaiPereira with his version of a R
 
 Credit to @Kai for the PCB's shape as almost every other badge with an NFC and E_ink display i thought of either looked kinda weird or was asymmetrical.
 
+<img width="1470" height="956" alt="image" src="https://github.com/user-attachments/assets/d75965c3-9160-4f98-8a10-32b5f45a1ab5" />
