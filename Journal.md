@@ -25,3 +25,12 @@ Finished the schematics, after all the random errors, i suck at matching the rig
 
 
 **Total time spent: 10+hrs (i literally did not get up from my desk after returing from school 😭) **
+
+
+
+
+
+
+<img width="1470" height="956" alt="image" src="https://github.com/user-attachments/assets/91890b81-e389-478e-bfbb-2047fe45b4ab" />
+<img width="1470" height="956" alt="image" src="https://github.com/user-attachments/assets/74327a60-9dca-41bc-b455-6010a8e7d000" />
+
