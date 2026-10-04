@@ -14,6 +14,7 @@ Finished the schematics, after all the random errors, i suck at matching the rig
 
 <img width="1470" height="956" alt="image" src="https://github.com/user-attachments/assets/3c5cc2a9-4b0f-460a-808f-63ce19fbf683" />
 <img width="1326" height="828" alt="image" src="https://github.com/user-attachments/assets/b58a8d3a-0650-46a9-82fa-2939b699d280" />
+<img width="1470" height="956" alt="image" src="https://github.com/user-attachments/assets/30bc4d57-9473-4895-97c2-ff74a33e7e76" />
 
 
 **Total time spent: 10+hrs (i literally did not get up from my desk after returning from school 😭) **
